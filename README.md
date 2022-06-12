@@ -12,3 +12,5 @@ Some other random facts:
 - 💬 Ask me about what I've been listening too.
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I really like Lil Wayne.
+
+See more about me at [axel.gg](https://axel.gg).
