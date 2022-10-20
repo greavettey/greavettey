@@ -11,6 +11,6 @@ Some other random facts:
 - 🌱 Robotics is rapidly approaching...
 - 💬 Ask me where I'm thinking about going to school.
 - 😄 Pronouns: He/Him
-- ⚡ I really like Lil Wayne.
+- ⚡ I really like Lil Wayne, Pusha T, and BROCKHAMPTON.
 
-See more about me at [axel.gg](https://axel.gg).
+See more about me at [axel.gg](https://axel.gg) or [dev.axel.gg](https://dev.axel.gg).
